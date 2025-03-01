@@ -1,0 +1,1 @@
+# mazik-global
